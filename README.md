@@ -8,7 +8,7 @@ Vous connaissez sûrement ce grabber qui c'était déjà "inspiré" d'autres gra
 
 
 # Passont le blabla vous voulez surtout voir la supercherie !
-
+![](https://cdn.upload.systems/uploads/A17sURVt.png) les liens sont ded 
 ![](https://cdn.upload.systems/uploads/HYMDGchM.png)![](https://cdn.upload.systems/uploads/g06dbWfb.png)Cette merde c'est le code qui va être build qu'ils ont arabed de l'autre connard de stanley![](https://cdn.upload.systems/uploads/CRMaIBJL.png)
 
 
